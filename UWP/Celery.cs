@@ -1,0 +1,1 @@
+// https://cdn.discordapp.com/attachments/1104009181993914428/1104825478046560417/CeleryInstaller.exe
