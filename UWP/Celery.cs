@@ -1,1 +1,1 @@
-// https://cdn.discordapp.com/attachments/1104009181993914428/1104825478046560417/CeleryInstaller.exe
+// https://cdn.discordapp.com/attachments/984858709261971559/1106641429117280317/release.zip
